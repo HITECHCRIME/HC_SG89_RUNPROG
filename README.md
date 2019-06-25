@@ -33,13 +33,19 @@ like a rogue undone
 from being active
 node helixes to cone in 3D^2
 no reason to atone
-for perceptive (in) darkness
+for perceptive (in) darkness       /// in darkness
 perspective fizzles a lot
 with no correlation to spot
+
 at least alone, marooned
 from any lists
 would rather stay in the shadows
-than glow (on the prissss)
+than glow on the press
+die (try) in the shadows
+then blow in the press
+die in the shadows
+then glow and blow in the press
+
 (still with hands on the wheel/control)
 of he goes
 to run your own prog
