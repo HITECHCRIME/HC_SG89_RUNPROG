@@ -44,6 +44,33 @@ than glow (on the prissss)
 of he goes
 to run your own prog
 
+ALTERNATIVE NEWER
+
+to run your own prog (5)
+ram prerogative actions (7)
+bezels framed on hot (5)
+with no causation (4)
+so better don't start shit (6)
+
+no accusations will be thrown (8)
+when my online presence be (7)
+like a rogue undone (5)
+from being active (5)
+node helixes to cone in 3D^2 (10)
+no reason to atone (6)
+for perceptive (in) darkness (7)
+
+perspective fizzles a lot (7)
+with nothing to spot, correlation (9)
+at least alone in the marshes (8)
+marooned from any lists (5)
+would rather stay in (this shit) these shadows (10)
+than (over the glow) glow (on the prissss)
+(still with hands on control)
+(still with hands on the wheel)
+of he goes authenticated
+to run your own prog
+
 ```
 
 ## Music Video
