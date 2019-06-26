@@ -35,7 +35,7 @@ like a rogue undone
 from being active
 node helixes to cone in 3D^2
 no reason to atone
-for perceptive (in) darkness       /// in darkness
+for perceptive (in) darkness        /// in darkness
 perspective fizzles a lot
 with no correlation to spot
 
