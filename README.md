@@ -24,6 +24,8 @@ run your own prog
 run your own prog
 run your own prog ?
 
+execute
+
 to run your own prog
 de-prerogative actions
 bezels framed on hot
