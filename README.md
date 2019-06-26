@@ -52,6 +52,15 @@ then glow and blow in the press
 of he goes
 to run your own prog
 
+at least alone, marooned
+from any lists
+would rather thrive in the shadows
+than glow on the press
+die in the shadows
+then blow in the press
+die in the shadows
+then glow and blow in the press
+
 ALTERNATIVE NEWER
 
 to run your own prog (5) 
