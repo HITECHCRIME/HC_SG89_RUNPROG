@@ -11,7 +11,7 @@ https://www.youtube.com/watch?v=fs3HP6IYuB8
 
 **Title:** R_NPR0G / **Featuring:** MOTHNODE
 
-**Production:** x / **Lyrics:** x
+**Production:** x / **Lyrics:** MOTHNODE
 
 
 
