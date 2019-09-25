@@ -46,7 +46,7 @@ die in the shadows
 then glow and blow in the press
 
 (still with hands on the wheel/control)
-of he goes
+off he goes
 to run your own prog
 
 at least alone, marooned
