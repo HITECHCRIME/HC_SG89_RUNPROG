@@ -9,7 +9,7 @@
 Night Lovell X Suicideboys Type Beat "Cold" (Prod. NetuH)
 https://www.youtube.com/watch?v=fs3HP6IYuB8
 
-**Title:** x / **Featuring:** x
+**Title:** R_NPR0G / **Featuring:** MOTHNODE
 
 **Production:** x / **Lyrics:** x
 
