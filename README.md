@@ -13,8 +13,6 @@ https://www.youtube.com/watch?v=fs3HP6IYuB8
 
 **Production:** NetuH / **Lyrics:** MOTHNODE
 
-
-
 ## Lyrics
 
 ```
